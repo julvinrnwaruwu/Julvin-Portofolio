@@ -1,6 +1,2 @@
-# Julvin-Portofolio[index (2).html](https://github.com/user-attachments/files/22647987/index.2.html)
-![RIZ07515](https://github.com/user-attachments/assets/f5395f79-b0bd-4ed0-8aa4-cf0fbb95946d)![fotosma](https://github.com/user-attachments/assets/92ddb4d8-8017-4a2a-8631-a0952a777f33)
-![fotosaya](https://github.com/user-attachments/assets/0df7e39f-1281-4451-8ce9-84a8a5a8d168)
-![selfie](https://github.com/user-attachments/assets/83d329e6-69b5-464b-b616-51ae3d5cbab1)
-![RIZ07533](https://github.com/user-attachments/assets/0569b1ca-8d6e-4c0a-873d-1cf804cff27d)
-![RIZ07525](https://github.com/user-attachments/assets/a8432291-f322-4eaf-b8b7-d1bfae0f1682)
+# Julvin-Portofolio (https://github.com/user-attachments/files/22647987/index.2.html)
+
